@@ -1,2 +1,2 @@
-# Rizky-Khoerudim
+# Rizky-Khoerudin
 Tugas UAS Evaluasi Program Pendidikan
